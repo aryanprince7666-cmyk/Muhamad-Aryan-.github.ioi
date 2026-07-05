@@ -1,4 +1,4 @@
-# Muhamad-Aryan-.github.ioi
+# Muhamad-Aryan-.github
 "Can we add our full details on this website page?"
 
  :)
